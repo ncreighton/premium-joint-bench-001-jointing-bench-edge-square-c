@@ -1,0 +1,2 @@
+# premium-joint-bench-001-jointing-bench-edge-square-c
+Tired of starting your jointing bench project with scattered notes and no clear plan? This Notion template gives you a structured workshop roadmap to build the perfect edge square craft workspace.  The Jointing Bench &amp; Edge Square Craft Workshop template organizes every step of your build—from materials and measurements to assembly and finishing. I
